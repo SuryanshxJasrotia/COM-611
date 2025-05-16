@@ -1,0 +1,1 @@
+G5 AI-VC 6th SEM
